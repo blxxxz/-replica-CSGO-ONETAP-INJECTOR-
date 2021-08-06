@@ -4,4 +4,4 @@
 credits: root#1419
 
 ss of injector: 
-![alt text](https://blxxz.011010010110110001111001.lol/blxxz/😛🧽🥣🗻) 
+![image](https://user-images.githubusercontent.com/87947793/128498127-dcd0419a-5bd7-4dd5-a045-bf7f2bde9d5c.png)
